@@ -1,1 +1,1 @@
-# ngapain tolol
+# mau ngapain bangsat
