@@ -1,1 +1,1 @@
-# mau ngapain bangsat
+# mau ngapain bangsat!
